@@ -1,2 +1,2 @@
 ### Hi there 👋
-#### ⚡ Fun fact: Polish dish "Paprykarz szczeciński" is mot made from pepper, as name suggest. Instead, it is made from fish, rice and tomatoes!
+#### ⚡ Fun fact: the Polish dish "Paprykarz szczeciński" is not made from any pepper, as the name would suggest. Instead, it is made from fish, rice and tomatoes!
